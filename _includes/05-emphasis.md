@@ -1,0 +1,1 @@
+Im new to _programming_ but it's fun to **learn**. I like to _cook_ good **food* and hanging out with my _friends_.
